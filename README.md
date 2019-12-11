@@ -1,2 +1,2 @@
-# aminulislam
- A portfolio of Aminul Islam
+# Aminul Islam
+ A wellknown Business Consultant located in Sylhet Bangladesh. 
